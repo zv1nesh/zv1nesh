@@ -53,7 +53,6 @@
     <li>"I love kids" jokes and p3d0 jokes.</li>
     <li>Jokes about school attacks or harming animals.</li>
     <li>Harsh homophobia.</li>
-    <li>Trolling people.</li>
     <li>h0rn" turkish.</li>
     <li>Disrespecting religions.</li>
     <li>Copying people's ponies, art, music, etc.</li>
