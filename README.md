@@ -49,11 +49,12 @@
   <summary><b>✦ DNI ✦</b></summary>
 
   <ul>
+    <li> IF YOU'RE UNDER 13 YO.
     <li>Making jokes about Jin Bubaigawara's death.</li>
     <li>"I love kids" jokes and p3d0 jokes.</li>
     <li>Jokes about school attacks or harming animals.</li>
     <li>Harsh homophobia.</li>
-    <li>h0rn" turkish.</li>
+    <li>h0rn" turkish or ppl.</li>
     <li>Disrespecting religions.</li>
     <li>Copying people's ponies, art, music, etc.</li>
     <li>Jokes about Oliver Tree's death.</li>
