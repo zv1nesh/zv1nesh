@@ -50,7 +50,6 @@
 
   <ul>
     <li> IF YOU'RE UNDER 13 YO.
-    <li> shipping everything.(its ok u can ship chars but im getting uncomfortable with all weird ah ships.. sorry!!, ships i love bakudeku,kiribaku,dekuchaco? togachaco? erasermic,,,)
     <li>Making jokes about Jin Bubaigawara's death.</li>
     <li>"I love kids" jokes and p3d0 jokes.</li>
     <li>Jokes about school attacks or harming animals.</li>
