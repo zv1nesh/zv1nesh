@@ -86,7 +86,7 @@
   <summary><b>✦ !! ✦</b></summary>
 
   <p>
-    Please don't cover me and my friends, AND REALLY DON'T COPY ANYONE.
+    Please REALLY DON'T COPY ANYONE. also please say if im bothering or annoying i'll run away...xd
   </p>
 </details>
 
