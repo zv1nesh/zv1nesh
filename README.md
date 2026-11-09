@@ -13,7 +13,7 @@
 <p align="center">
   <b>and my kin character is Saitama</b>
   <small> ← </small>
-  <sup><i>I kin Saitama</i></sup>
+  <sup><i>I find myself in him too</i></sup>
 
  <table align="center">
   <tr>
@@ -42,7 +42,7 @@
   &nbsp;
   <b><i>U can C+H or INT whenever u want!</i></b>
   <br>
-  <sub><i>I prefer whisper.</i></sub>
+  <sub><i>I prefer whisperpls dont come suddenly im getting confused or scared Dx.</i></sub>
 
 
 <details>
@@ -125,17 +125,16 @@
 <p align="center">
   ════ஓ๑♡๑ஓ════
   <br>
-  † ── "I haven't cared about myself for a long time!" ── †
+   ── "I haven't cared about myself for a long time!" ── 
   <br><br>
 
 <img width="450" height="256" alt="115052965471047431" src="https://github.com/user-attachments/assets/25420214-5fa8-414c-aa54-1eb87cfbd174" />
 
   <br><br>
-  † ── "I was almost killed by myself" ── †
+   ── ᝰ🚬"I was almost killed by myself" ── 
   <br>
   ════ஓ๑♡๑ஓ════
 </p>
-
 
 
 <p align="center">
@@ -203,6 +202,11 @@ You can barely see me when I'm angry. I'm mostly an aggressive person, but not w
 <br><br>
 <i><b>I just want to protect everyone's happiness.</b></i>
 <br><br>
-───── ⋆｡°✩ ─────
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 </p>
 
+
+
+<br><br>
+"Thanks For Saving Me" ִֶָ🪽་༘
+<br>
