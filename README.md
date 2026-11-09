@@ -40,7 +40,7 @@
 <p align="center">
   <i>〰︎ ୨୧ ⤷</i>
   &nbsp;
-  <b><i>U can C+H or INT whenever u want!</i></b>
+  <b><i>U can C+H or INT(IWC) whenever u want!</i></b>
   <br>
   <sub><i>I prefer whisperpls dont come suddenly im getting confused or scared Dx.</i></sub>
 
@@ -49,15 +49,15 @@
   <summary><b>✦ DNI ✦</b></summary>
 
   <ul>
-    <li> IF YOU'RE UNDER 13 YO.
+    <li> IF YOU'RE UNDER 14 YO./
     <li>Making jokes about Jin Bubaigawara's death.</li>
     <li>"I love kids" jokes and p3d0 jokes.</li>
     <li>Jokes about school attacks or harming animals.</li>
     <li>Harsh homophobia.</li>
-    <li>h0rn" turkish or ppl.</li>
+    <li>IF U H0RNY turkish or PERSON.</li>
     <li>Disrespecting religions.</li>
     <li>Copying people's ponies, art, music, etc.</li>
-    <li>Jokes about Oliver Tree's death.</li>
+    <li>Jokes about Oliver Tree's death. Or other persons.</li>
     <li>Taking everything seriously.</li>
     <li>Making characters act completely out of character in OC lore.</li>
     <li>example"WDYM AIZAWA LEFT A WOMAN PREGNANT IN UR OC LORE."</li>
@@ -185,11 +185,11 @@ I'm really trying to be different for each person, depending on their personalit
 
 <br><br>
 
-I always take care of my friends and show affection to them. I flirt when I feel like it, jokingly, so don't get surprised. (I can stop if it really bothers you.) And please don't be shy to tell me to stop if I'm being annoying...
+I always take care of my friends and show affection to them. I flirt when I feel like it, jokingly, so don't get surprised. (I can stop if it really bothers you.) And please don't be shy to tell me to stop if I'm being annoying. 
 
 <br><br>
 
-You can barely see me when I'm angry. I'm mostly an aggressive person, but not when I'm around my friends or idk. I only get mad when I'm annoyed or bothered. If you're lucky, you can see me getting mad or sad lol xD ahem.
+
 
 </td>
 </tr>
@@ -204,6 +204,8 @@ You can barely see me when I'm angry. I'm mostly an aggressive person, but not w
 <br><br>
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 </p>
+
+
 
 
 
