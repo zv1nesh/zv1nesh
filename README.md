@@ -114,7 +114,7 @@
   <p>
     MHA : Jin, Inasa, Monoma, Tenya, Aoyama, Mirio, Moonfish, Toshinori, Aizawa, Hagakure
    JJK : Takaba, Haruta, Geto, Yuta, Mahit--
-   Gokurakugai : Ryuu, Shizuka, Alma, Yoki, Yomi, Dara, Keishin, Jin/Yoru
+   Gokurakugai : Ryuu, Shizuka, Alma, Yoki, Yomi, Dara, Keishin, Jin/Yoru, Chihaya, Utsuro, Misao, 
    others : FLuttershy, Derpy (MLP) Shane, Harvey (SDV) Cross Sans, Arz Sans, Ink Sans, Horror Sans (SANSAU) Soap, Price, Nikto, Makarov, Gaz (COD) Namgyu, Thanos (SG) Saitama , Garou (OPM) Goku,,, Kakashi, Naruto, Rock Lee, Gaara (NARUTO) Deadpool, Wolverine, Joker, Superman, Slapstick,, Bettlejuice, Shadow The Hedgehog, Sonic, INfinite The Jackal...... idk what TO ADD BRUH ♥️
   </p>
 
