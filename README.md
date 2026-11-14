@@ -101,6 +101,23 @@
     I don't want to annoy anyone!!!
   </p>
 
+
+
+
+<hr>
+
+
+
+ <details>
+  <summary><b>✦ my fav chars!! ✦</b></summary>
+
+  <p>
+    MHA : Jin, Inasa, Monoma, Tenya, Aoyama, Mirio, Moonfish, Toshinori, Aizawa, Hagakure
+   JJK : Takaba, Haruta, Geto, Yuta, Mahit--
+   Gokurakugai : Ryuu, Shizuka, Alma, Yoki, Yomi, Dara, Keishin
+   others : FLuttershy, Derpy (MLP) Shane, Harvey (SDV) Cross Sans, Arz Sans, Ink Sans, Horror Sans (SANSAU) Soap, Price, Nikto, Makarov, Gaz (COD) Namgyu, Thanos (SG) Saitama , Garou (OPM) Goku,,, Kakashi, Naruto, Rock Lee, Gaara (NARUTO) Deadpool, Wolverine, Joker, Superman, Slapstick,, Bettlejuice, Shadow The Hedgehog, Sonic, INfinite The Jackal...... idk what TO ADD BRUH ♥️
+  </p>
+
 </details>
 <summary>✦ My favourite singers, groups ✦</summary>
 - BIGBANG
@@ -212,3 +229,6 @@ I always take care of my friends and show affection to them. I flirt when I feel
 <br><br>
 "Thanks For Saving Me" ִֶָ🪽་༘
 <br>
+
+
+
